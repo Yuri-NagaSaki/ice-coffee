@@ -470,7 +470,8 @@ Pia！
 
 雪糕：“不。。。不要。。。呜啊！！”秀发一下子被从身后拽紧，脚软的雪糕一下子紧紧按住了墙壁，而差一点闪身跌倒，却是在辫发后撤，双手撑墙的姿势下微微翘起了那只诱人的柔软翘臀。
 
-![[1C%}$ZN7P&#x60;}LXDJ}QC&#x60;88A.jpg](https://res.craft.do/user/full/5f1a8665-23bd-1358-6950-28f1cb896924/doc/00025BB5-A896-46CA-BB33-05233B131D89/38f55838-4f35-436b-bebb-961a986da83b)
+![image](https://user-images.githubusercontent.com/77047823/194060007-64721c24-cfbc-4e43-b2a7-b90b904b014d.png)
+
 
 咖啡“走喽！”
 
